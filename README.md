@@ -35,7 +35,3 @@
 <div align="center">
 
  ⊹₊˚‧︵‿₊ᨳଓ₊‿︵‧˚₊⊹
-
-</div>
-thanks to master xyl for helpıng me with this not because i wanted it or anything
-────────────
