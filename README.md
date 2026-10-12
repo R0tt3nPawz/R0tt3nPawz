@@ -3,7 +3,7 @@
 
 ⊹ ࣪ ˖꒰ঌ ໒꒱.⋆˚࿔
 
-<img src="link"
+<img src="[link](https://github.com/R0tt3nPawz/R0tt3nPawz/blob/main/2026_10_12_0pv_Kleki.png?raw=true)"
 width="736%" alt="Banner">
 
 <p align="center"> <font size="5"> $\color{#E7D3EF}{\text{⊹ ࣪ ˖꒰ঌ ໒꒱.⋆˚࿔}}$
