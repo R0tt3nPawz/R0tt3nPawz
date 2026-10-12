@@ -1,16 +1,41 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**R0tt3nPawz/R0tt3nPawz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+⊹ ࣪ ˖꒰ঌ ໒꒱.⋆˚࿔
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img src="link"
+width="736%" alt="Banner">
+
+<p align="center"> <font size="5"> $\color{#E7D3EF}{\text{⊹ ࣪ ˖꒰ঌ ໒꒱.⋆˚࿔}}$
+
+
+<br clear="both">
+
+<img align="left"
+     src="link"
+width="50%" alt="">
+
+<p align="left"> <font size="5"> $\color{#d4a0e9}{\text{MEOW MEOW MEOW}}$
+
+
+$\color{#5c3442}{\text{ >⩊<.ᐟ Aphmau fan }}$ 
+
+$\color{#5c3442}{\text{C+h are usually welcome unless said otherwise}}$ 
+
+$\color{#5c3442}{\text{>⩊<.ᐟ im 18, minors can int with me just be warned}}$ 
+
+$\color{#5c3442}{\text{>⩊<.ᐟ ya'll goofy lil goobers}}$ 
+
+$\color{#5c3442}{\text{>⩊<.ᐟdont be weird guys}}$ 
+
+$\color{#591010}{\text{>⩊<.ᐟ "I just want to see her smile..." -Aaron Lycan}}$ 
+<img align="right"
+     src="link"
+width="40%">
+
+
+<br clear="both">
+
+<div align="center">
+
+⊹ ࣪ ˖꒰ঌ ໒꒱.⋆˚࿔
